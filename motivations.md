@@ -1,0 +1,1 @@
+I have a love of learning new things. I think that learning to code will open up a new realm of possibility for me to learn new things, and apply what I've learned to a career that will enable me the freedom financially to make the best use of my time and thereby contribute to a better work/life balance.
